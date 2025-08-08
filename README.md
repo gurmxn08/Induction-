@@ -35,5 +35,5 @@
 - Then, at 2:30 p.m., there was another session by the Causmic Club, led by our seniors. They told us about the work of the Causmic Club, showed us the projects completed by their team, and also informed us about the recruitment of new members for the club.
 
 - The day felt quite long but was filled with new information and valuable experiences.
-##Day 5 at Gndec college 
+# Day 5 at Gndec college 
   
