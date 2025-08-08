@@ -46,3 +46,15 @@
 
 - The 5th of August at Gndec college felt like the day I truly stepped into college life. I began to feel more comfortable, and the surroundings started to feel familiar—like a place I now belonged to.
 # Day 6 at Gndec college 
+- The sixth day of my induction program at GNDEC College began at 9:30 a.m. The day started with different sessions scheduled for various sections. For CSE-C students, there was an ID card formation process outside the TCC Seminar Hall. Other sections attended different classes according to the timetable.
+
+- For my section, the first session from 9:30 a.m. to 10:30 a.m. was the Chemistry lecture by Prof. Mandeep Kaur. She continued with the introductory phase of the syllabus, discussing the chapters that would be part of our curriculum and giving us a brief overview of certain concepts that would be taught in detail later. Her explanation was clear.
+
+- After the Chemistry lecture, from 10:30 a.m. to 11:30 a.m., we had our maths lecture with Prof. Gagandeep Kaur. She engaged us with a few interactive activities and encouraged participation. The session also helped us develop a better understanding of the importance of communication skills in both academic and professional life.
+
+- Once the academic lectures were over, we had a short break before moving to the auditorium at 11:30 a.m. for a special session. The first talk was by Mr. Jasvir Singh Sekhon, a STEM District Resource Person. He provided valuable insights into the world of science, technology, engineering, and mathematics, explaining how these fields are interconnected and how students can make the most of opportunities in these areas.
+
+- The final session of the day, at 3:00 p.m., was by Dr. Lakhvir Singh Khana from CML. His talk was both informative and motivational, touching upon innovative learning approaches and the role of creativity in education.
+
+- By the end of the day, I felt enriched with new knowledge, not just from the academic lectures but also from the expert talks that broadened my perspective on education and career development. The 6th day truly blended learning with inspiration, making it both productive and memorable.
+# Day 7 at Gndec college 
