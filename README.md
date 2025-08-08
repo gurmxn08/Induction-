@@ -58,3 +58,22 @@
 
 - By the end of the day, I felt enriched with new knowledge, not just from the academic lectures but also from the expert talks that broadened my perspective on education and career development. The 6th day truly blended learning with inspiration, making it both productive and memorable.
 # Day 7 at Gndec college 
+- The seventh day of my induction program began at 9:30 a.m. in the auditorium with a lecture by Dr. Amit Kamra, Incharge of DMC. He spoke about the college’s academic processes, the role of discipline in a student’s life, and the importance of time management. His words motivated us to maintain sincerity throughout our academic journey.
+
+- From 10:30 a.m. to 11:30 a.m., we attended a session by Dr. Parminder Singh, Dean of Student Welfare. He informed us about the various student support services, welfare schemes, and extracurricular opportunities offered by the college. The talk encouraged us to make full use of these facilities to enhance both our personal and professional development.
+
+- The next session, from 11:30 a.m. to 12:30 p.m., was conducted by Dr. Randhir Singh on the “Conduct of Examination.” He explained examination rules, evaluation methods, and the importance of honesty and discipline during exams. The session clarified our responsibilities and removed doubts about the examination process.
+
+- After a lunch break from 12:30 p.m. to 1:30 p.m., the academic lectures began. From 1:30 p.m. to 2:30 p.m., we had BEE (Basic Electrical Engineering) in the ME Seminar Hall with Prof. Harminder Kaur (ECE), who introduced the subject and explained its importance for future engineering applications.
+
+- From 2:30 p.m. to 3:30 p.m., we attended Mathematics in the ME Seminar Hall with Prof. Gagandeep Kaur Lotey. She revised some basic concepts. The session was interactive, and she encouraged us to ask questions to clear our doubts.
+
+- The day was a good balance of orientation sessions in the morning and subject learning in the afternoon. It gave us important administrative knowledge while also helping us take our first steps into the core academic subjects.
+# Day 8 at Gndec college 
+- The eighth day began at 9:00 a.m. in the TCC Seminar Hall with an Expert Lecture by Mrs. Shaffy Makkar on “Millets – Super Food.” She explained the nutritional benefits of millets, their role in preventing lifestyle diseases, and their contribution to sustainable agriculture. The session was very engaging and provided us with knowledge that can be applied in daily life.
+
+- From 10:30 a.m. to 12:00 noon, we had Mathematics in the TCC Seminar Hall with Prof. Gagandeep Kaur Lotey. She continued from the previous lecture, working through more examples and explaining problem-solving approaches in detail. Her clear explanations helped in building a strong base for the subject.
+
+- The rest of the day’s schedule was lighter for our section as some time slots were occupied with ID card formation for other sections. This gave us some extra time for self-study and informal interaction with classmates, which helped us bond better as a group.
+
+- The 8th day was simple yet productive — starting with a unique and health-oriented expert lecture followed by focused academic learning in Mathematics. It gave us both practical life knowledge and subject-specific skills.
