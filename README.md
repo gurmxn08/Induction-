@@ -26,4 +26,14 @@
 
 - Overall, the third day at GNDEC College was very informative and enriching. The sessions conducted by both speakers provided us with knowledge, inspiration, and a deeper understanding of academic as well as real-life topics.
  # Day 4 at Gndec college 
+ - On the 4th day, we went to college at 9:30 a.m. At that time, there was a P2P class with our seniors. The class was very good, and our seniors explained everything to us in a very effective manner.
+
+- At 10:30 a.m., there was another class of English conducted by Manjot Mam. She asked us to give our introductions. The class lasted for approximately one hour. After that, there was a break of one hour until 12:30 p.m.
+
+- At 12:30 p.m., we were asked to go to the auditorium, where there was a session by Dr. Priya Darshini Mam on human rights. Like her first session, this one was also very informative and inspiring. She interacted with us and asked for our opinions, which made the session more engaging.
+
+- Then, at 2:30 p.m., there was another session by the Causmic Club, led by our seniors. They told us about the work of the Causmic Club, showed us the projects completed by their team, and also informed us about the recruitment of new members for the club.
+
+- The day felt quite long but was filled with new information and valuable experiences.
+##Day 5 at Gndec college 
   
