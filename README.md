@@ -52,6 +52,7 @@
 - The sixth day of my induction program at GNDEC College began at 9:30 a.m. The day started with different sessions scheduled for various sections. For CSE-C students, there was an ID card formation process outside the TCC Seminar Hall. Other sections attended different classes according to the timetable.
 
 - For my section, the first session from 9:30 a.m. to 10:30 a.m. was the Chemistry lecture by Prof. Mandeep Kaur. She continued with the introductory phase of the syllabus, discussing the chapters that would be part of our curriculum and giving us a brief overview of certain concepts that would be taught in detail later. Her explanation was clear.
+- ![Image](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_145914.jpg)
 
 - After the Chemistry lecture, from 10:30 a.m. to 11:30 a.m., we had our maths lecture with Prof. Gagandeep Kaur. She engaged us with a few interactive activities and encouraged participation. The session also helped us develop a better understanding of the importance of communication skills in both academic and professional life.
 
