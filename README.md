@@ -22,7 +22,7 @@
 - Overall, the second day of the induction program was highly informative. As newcomers, we were able to learn a lot about the campus, the academic culture and extracurricular opportuitiees available to us.
 # Day 3 at Gndec college 
 - The third day at GNDEC College, which was on August 2nd (Saturday), was quite engaging and informative. I was informed to report to the college by 9:00 AM. Upon arrival, we attended a session in the auditorium conducted by Dr. Jaswinder Singh. His session turned out to be extremely interesting, and I personally enjoyed it a lot. He shared his life experiences with us. Dr. Singh interacted with many students during the talk and provided us with valuable insights related to science and mathematics, but more importantly, about life itself. His words were not only educational but also thought-provoking. He truly is a brilliant and inspiring teacher.
-
+![Image](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_015300.jpg)
 - Following that, at 11:00 AM, we had another session led by Dr. Priya Darshni Madam, which focused on human rights. She shared her thoughts on the idea of the continuity of happiness. What made her session particularly engaging was the way she encouraged student interaction by asking for our opinions. This created an open and lively discussion. She also invited questions from the audience and answered them thoughtfully and clearly.
 
 - Overall, the third day at GNDEC College was very informative and enriching. The sessions conducted by both speakers provided us with knowledge, inspiration, and a deeper understanding of academic as well as real-life topics.
