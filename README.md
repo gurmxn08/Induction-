@@ -76,6 +76,7 @@
 - The day was a good balance of orientation sessions in the morning and subject learning in the afternoon. It gave us important administrative knowledge while also helping us take our first steps into the core academic subjects.
 # Day 8 at Gndec college 
 - The eighth day began at 9:00 a.m. in the TCC Seminar Hall with an Expert Lecture by Mrs. Shaffy Makkar on “Millets – Super Food.” She explained the nutritional benefits of millets, their role in preventing lifestyle diseases, and their contribution to sustainable agriculture. The session was very engaging and provided us with knowledge that can be applied in daily life.
+![Image](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_161243.jpg)
 
 - From 10:30 a.m. to 12:00 noon, we had Mathematics in the TCC Seminar Hall with Prof. Gagandeep Kaur Lotey. She continued from the previous lecture, working through more examples and explaining problem-solving approaches in detail. Her clear explanations helped in building a strong base for the subject.
 
