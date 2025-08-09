@@ -33,7 +33,7 @@
 - At 10:30 a.m., there was another class of English conducted by Manjot Mam. She asked us to give our introductions. The class lasted for approximately one hour. After that, there was a break of one hour until 12:30 p.m.
 
 - At 12:30 p.m., we were asked to go to the auditorium, where there was a session by Dr. Priya Darshini Mam on human rights. Like her first session, this one was also very informative and inspiring. She interacted with us and asked for our opinions, which made the session more engaging.
-- ![Image](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_015418.jpg)
+- ![Image](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_015138.jpg)
 
 - Then, at 2:30 p.m., there was another session by the Causmic Club, led by our seniors. They told us about the work of the Causmic Club, showed us the projects completed by their team, and also informed us about the recruitment of new members for the club.
 
