@@ -24,6 +24,7 @@
 - The third day at GNDEC College, which was on August 2nd (Saturday), was quite engaging and informative. I was informed to report to the college by 9:00 AM. Upon arrival, we attended a session in the auditorium conducted by Dr. Jaswinder Singh. His session turned out to be extremely interesting, and I personally enjoyed it a lot. He shared his life experiences with us. Dr. Singh interacted with many students during the talk and provided us with valuable insights related to science and mathematics, but more importantly, about life itself. His words were not only educational but also thought-provoking. He truly is a brilliant and inspiring teacher.
 ![Image](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_015300.jpg)
 - Following that, at 11:00 AM, we had another session led by Dr. Priya Darshni Madam, which focused on human rights. She shared her thoughts on the idea of the continuity of happiness. What made her session particularly engaging was the way she encouraged student interaction by asking for our opinions. This created an open and lively discussion. She also invited questions from the audience and answered them thoughtfully and clearly.
+- ![Image](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_015220.jpg)
 
 - Overall, the third day at GNDEC College was very informative and enriching. The sessions conducted by both speakers provided us with knowledge, inspiration, and a deeper understanding of academic as well as real-life topics.
  # Day 4 at Gndec college 
@@ -32,6 +33,7 @@
 - At 10:30 a.m., there was another class of English conducted by Manjot Mam. She asked us to give our introductions. The class lasted for approximately one hour. After that, there was a break of one hour until 12:30 p.m.
 
 - At 12:30 p.m., we were asked to go to the auditorium, where there was a session by Dr. Priya Darshini Mam on human rights. Like her first session, this one was also very informative and inspiring. She interacted with us and asked for our opinions, which made the session more engaging.
+- ![Image](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_015418.jpg)
 
 - Then, at 2:30 p.m., there was another session by the Causmic Club, led by our seniors. They told us about the work of the Causmic Club, showed us the projects completed by their team, and also informed us about the recruitment of new members for the club.
 
