@@ -17,7 +17,7 @@
 - At 1:00 PM, all students from the CSE and IT branches assembled in the college auditorium. A highly informative session was conducted by Dr. Arashdeep Singh on the topic of food and nutrition. He enlightened us on the importance of healthy eating habits and shared valuable information regarding food awareness. His insights were engaging and relevant, making the session both interesting and beneficial.
 
 - Following this, there was another session conducted by our seniors, where they introduced us to the Causmic Club—a student-driven initiative founded by our seniors. They explained the purpose of the club, its activities, and how it helps students grow both academically and personally. They also shared their own experiences of being part of the club and how it positively impacted their college journey. This session was particularly motivating and gave us a sense of belonging and direction.
-  [Img](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_014715.jpg)
+![Img](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_014715.jpg)
 
 - Overall, the second day of the induction program was highly informative. As newcomers, we were able to learn a lot about the campus, the academic culture and extracurricular opportuitiees available to us.
 # Day 3 at Gndec college 
