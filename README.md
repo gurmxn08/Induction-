@@ -42,7 +42,7 @@
 - My fifth day at GNDEC College was on 5th August (Tuesday). The day started earlier for other students, but my first lecture was at 10:30 a.m. I reached the college at 10:00 a.m. and, as part of my daily routine, went to the college Gurudwara Sahib before attending my classes. I have made it a habit to visit the Gurudwara Sahib every day before entering the classroom.
 
 - At 10:30 a.m., I attended my first lecture on BEE (Basic Electrical Engineering) by Prof. Harminder Kaur. Like other teachers, she began the class with an introduction round, giving each of us the opportunity to introduce ourselves. She also explained the exam format and how we would be assessed during the semester.
-
+![Image](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_145914.jpg)
 - After that, at 11:30 a.m., we had another lecture, this time on Chemistry by Prof. Mandeep Kaur. She discussed the chapters that would be included in the examinations and briefly explained a few topics that we would be covering in the coming weeks.
 
 - Later, at 2:00 p.m., we were asked to go to the TCC Seminar Hall for the process of making our ID cards. After clicking our photographs for the ID cards, they also took our signatures, which served as attendance for the session. With that, the day came to an end.
