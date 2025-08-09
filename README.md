@@ -63,6 +63,7 @@
 - By the end of the day, I felt enriched with new knowledge, not just from the academic lectures but also from the expert talks that broadened my perspective on education and career development. The 6th day truly blended learning with inspiration, making it both productive and memorable.
 # Day 7 at Gndec college 
 - The seventh day of my induction program began at 9:30 a.m. in the auditorium with a lecture by Dr. Amit Kamra, Incharge of DMC. He spoke about the college’s academic processes, the role of discipline in a student’s life, and the importance of time management. His words motivated us to maintain sincerity throughout our academic journey.
+- ![Image](https://github.com/gurmxn08/Induction-/blob/main/IMG_20250809_161220.jpg)
 
 - From 10:30 a.m. to 11:30 a.m., we attended a session by Dr. Parminder Singh, Dean of Student Welfare. He informed us about the various student support services, welfare schemes, and extracurricular opportunities offered by the college. The talk encouraged us to make full use of these facilities to enhance both our personal and professional development.
 
